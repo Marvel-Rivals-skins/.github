@@ -8,7 +8,7 @@ Marvel Rivals is a fast team shooter with iconic heroes, tactical roles, destruc
 
 ## Inside the Marvel Rivals Arena
 
-![Banner Placeholder](https://www.amd.com/content/dam/amd/en/images/games/marvel-rivals/3032700-marvel-rivals-key-art.jpg)
+![Banner Placeholder](https://pbs.twimg.com/media/HPIZ0-jWQAIeO6l.jpg)
 
 Marvel Rivals brings comic-book team combat into a fast multiplayer format where hero choice, map awareness, and squad timing matter in every round. Players searching for marvel rivals game details usually want more than a download page; they want to understand roles, counters, map flow, and how marvel rivals characters fit together before entering ranked matches or casual queues.
 
